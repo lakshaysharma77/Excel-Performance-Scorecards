@@ -16,3 +16,5 @@ CXO Executives Performance Scorecards
 ![CPO_HR](https://github.com/user-attachments/assets/a3130d73-f3f2-44f6-9c25-159b7036b203)
 
 ![CSO](https://github.com/user-attachments/assets/68a356e9-3ab1-4597-8774-c99628edf18c)
+
+![CSO_Sustainability](https://github.com/user-attachments/assets/4c5f562a-b6d2-4e27-9e62-8a57795b6ec8)
