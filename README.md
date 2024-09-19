@@ -11,3 +11,4 @@ CXO Executives Performance Scorecards
 
 ![COO](https://github.com/user-attachments/assets/4c726614-a7f0-44ea-bdcb-cf70ca2b5bdd)
 
+![CPO](https://github.com/user-attachments/assets/52cda061-a81a-4c60-a163-5847082c61d8)
